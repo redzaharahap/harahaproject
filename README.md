@@ -1,0 +1,4 @@
+Bagaimana membuat website bisnis dari awal? Perhatikan bahwa banyak <a href="https://www.ukmsumut.com/">peluang usaha</a> kata untuk konten sebuah landing page itu sudah sangat mencukupi. Cukup dalam artian memadai untuk SEO, dan juga cukup untuk menjelaskan produk atau bisnis secara garis besarnya. 
+Sangat disarankan untuk tidak jauh melebihi jumlah kata ini, karena kita berniat membangkitkan antusiasme pembacanya dan bukan membuat mereka mengantuk.
+Jika kamu tahu orang malas membaca kemudian  kenapa artikel ini dan artikel kamu yang lainnya panjang-panjang? Sederhana saja, karena ini ditujukan untuk pembelajaran bagi pemula dan bukan jualan
+Artikel untuk pembelajaran harus dibuat sedetil mungkin. Jika pengunjungnya malas membaca, ya berarti memang hasratnya pada bidang yang sedang dibahas itu tidak ada  dan kamu tidak rugi apapun.
